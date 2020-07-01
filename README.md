@@ -1,3 +1,0 @@
-# Hinweis
-
-möge der verantwortliche Schlumpf bitte das Projekt ordentlich einrichten...
